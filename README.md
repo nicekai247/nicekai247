@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: tôi không học đại học!
+- ⚡ Fun fact: tôi không học đại học! ：（
 - 
 
 <!---
